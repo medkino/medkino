@@ -55,6 +55,3 @@
 <p align="center"> <p align="center"><img src="https://files.catbox.moe/32o0mt.gif"/></p    
 
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/gs6jsv.png"/></p   
-
-                                                                                        
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wakv67kavo6wptxfixhbdnkwam&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
