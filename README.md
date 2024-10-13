@@ -7,7 +7,6 @@
 
 <p align="center">
 
-<p align="center"><img src="https://files.catbox.moe/1x6hn0.gif"/></p
 
                                                                     
 <p align="center"> <p align="center"> 𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏!
