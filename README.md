@@ -31,7 +31,6 @@
 <p align="center"> 
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
-    𝚝𝚑𝚒𝚜 𝙸𝚜 𝚓𝚜 𝚏𝚘𝚛 𝚍𝚎𝚌𝚘𝚛 , 𝚌𝚑𝚎𝚌𝚔 𝚘𝚝𝚑𝚎𝚛 𝚕𝚒𝚗𝚔𝚜!
 <p align="center"> <p align="center"> 
 
 <p align="center"><img src="https://files.catbox.moe/73e5h1.png"/></p  
