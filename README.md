@@ -1,6 +1,6 @@
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/ka02rf.gif"/></p        
                                                                                         
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/jbbenk.png"/></p           
+<p align="center"><img src="https://files.catbox.moe/73e5h1.png"/></p        
            
 <p align="center">
 <p align="center"><img src="https://files.catbox.moe/6i1r0w.jpg"/></p
@@ -31,8 +31,6 @@
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
 <p align="center"> <p align="center"> 
-
-<p align="center"><img src="https://files.catbox.moe/73e5h1.png"/></p  
                                                                     
 <p align="center"> <p align="center"><img src="https://files.catbox.moe/p78fe6.gif"/></p
 
