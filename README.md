@@ -26,9 +26,6 @@
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
 <p align="center"> <p align="center"> 
-
-
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/31tv10.png"/></p   
                                                                                         
 <p align="center">
 
