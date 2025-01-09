@@ -1,4 +1,4 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/p3ecyc.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/cd775m.png"/></p
 
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/p9g1d2.gif"/></p
                                                                                          
@@ -21,7 +21,7 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/tugpj1.png"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/zlbqmd.png"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
                                                                                                                                                                                   
@@ -44,4 +44,4 @@
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/6ddgg2.gif"/></p
 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/ubgkm7.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/ip661b.png"/></p
