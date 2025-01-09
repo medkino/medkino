@@ -27,9 +27,9 @@
                                                                                                                                                                                   
 <p align="center"> 
 
-<p align="center"> "𝐅𝐞𝐞𝐥 𝐦𝐲 𝐄𝐍𝐓𝐀𝐍𝐆𝐋𝐄𝐌𝐄𝐍𝐓. . ." <p align="center"> 
+<p align="center"> "𝐅𝐞𝐞𝐥𝐢𝐧𝐠 𝐬𝐡𝐢𝐭 𝐚𝐧𝐝 𝐛𝐢𝐭𝐭𝐞𝐫 𝐚𝐧𝐝 𝐚𝐧𝐠𝐫𝐲 𝐚𝐥𝐥 𝐭𝐡𝐞 𝐭𝐢𝐦𝐞 𝐣𝐮𝐬𝐭 . . . 𝐞𝐚𝐭𝐬 𝐚𝐰𝐚𝐲 𝐚𝐭 𝐲𝐨𝐮 . . ." <p align="center"> 
 <p align="center"> 
-"𝐀𝐭𝐭𝐚 𝐛𝐨𝐲!" <p align="center"> 
+"𝐈 𝐝𝐨𝐧'𝐭 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐯𝐨𝐢𝐜𝐞 𝐥𝐢𝐧𝐞𝐬 𝐭𝐨 𝐬𝐚𝐲 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐢𝐦 𝐥𝐰𝐤 𝐧𝐨𝐭 𝐢𝐧 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫 𝐚𝐭𝐦 . . " <p align="center"> 
 
 <p align="center">
   . . .
