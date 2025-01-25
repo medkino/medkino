@@ -1,6 +1,6 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/cd775m.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/gi2hq7.png"/></p
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/p9g1d2.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/dmj99t.gif"/></p
                                                                                          
 <p align="center">
                                                           
@@ -13,7 +13,7 @@
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. 𝐃 :
 
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/it3m6h.gif"/></p
+<p align="center"> <p align="center"><img src="https://files.catbox.moe/hen0ft.gif"/></p
 
 ༒︎𖤐
 
@@ -21,7 +21,7 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/zlbqmd.png"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/p8jlvd.png"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
                                                                                                                                                                                   
@@ -34,14 +34,16 @@
 <p align="center">
   . . .
 <p align="center">
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/b7o53f.gif"/></p
+
+<p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
+  
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/m4ymee.png"/></p
                                                                                         
 <p align="center"> 
   
-<p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
 <p align="center"> <p align="center"> 
 
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/6ddgg2.gif"/></p
 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/ip661b.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/hvpbaf.png"/></p
