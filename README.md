@@ -1,4 +1,4 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/gi2hq7.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/ayoccr.png"/></p
 
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/dmj99t.gif"/></p
                                                                                          
@@ -46,4 +46,4 @@
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/6ddgg2.gif"/></p
 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/hvpbaf.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/nz86qs.png"/></p
