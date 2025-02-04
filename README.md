@@ -1,6 +1,6 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/ayoccr.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/cy9ya8.png"/></p
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/dmj99t.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/ie2oq9.gif"/></p
                                                                                          
 <p align="center">
                                                           
@@ -13,7 +13,7 @@
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. 𝐃 :
 
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/hen0ft.gif"/></p
+<p align="center"> <p align="center"><img src="https://files.catbox.moe/ie2oq9.gif"/></p
 
 ༒︎𖤐
 
@@ -21,23 +21,21 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/p8jlvd.png"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/cracrv.png"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
                                                                                                                                                                                   
 <p align="center"> 
 
-<p align="center"> "𝐓𝐡𝐢𝐧𝐤! 𝐖𝐡𝐚𝐭 𝐢𝐟 𝐚𝐥𝐥 𝐲𝐨𝐮𝐫 𝐥𝐢𝐟𝐞 𝐢𝐬 𝐚 𝐥𝐢𝐞?" <p align="center"> 
+<p align="center"> " 𝐘𝐨𝐮'𝐫𝐞 𝐬𝐨 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 . . " <p align="center"> 
 <p align="center"> 
-"𝐎𝐡𝐨, 𝐈 𝐭𝐡𝐢𝐧𝐤 𝐈'𝐦 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐮𝐬𝐞𝐝 𝐭𝐨 𝐭𝐡𝐢𝐬 𝐝𝐨𝐮𝐠𝐡!" <p align="center"> 
+" 𝐇𝐨 𝐝𝐢𝐝 𝐮 𝐣𝐮𝐬𝐭 𝐭𝐰𝐢𝐬𝐭 𝐭𝐡𝐞 𝐤𝐧𝐢𝐟𝐞 ? " <p align="center"> 
 
 <p align="center">
   . . .
 <p align="center">
 
 <p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
-  
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/m4ymee.png"/></p
                                                                                         
 <p align="center"> 
   
@@ -46,4 +44,4 @@
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/6ddgg2.gif"/></p
 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/nz86qs.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/cmcn3u.png"/></p
