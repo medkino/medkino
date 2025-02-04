@@ -1,6 +1,6 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/cy9ya8.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/7hvyz4.gif"/></p
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/ie2oq9.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/t5aerr.gif"/></p
                                                                                          
 <p align="center">
                                                           
@@ -21,15 +21,15 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/cracrv.png"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/nwu9om.gif"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
                                                                                                                                                                                   
 <p align="center"> 
 
-<p align="center"> " 𝐘𝐨𝐮'𝐫𝐞 𝐬𝐨 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 . . " <p align="center"> 
+<p align="center"> " 𝗦𝗵𝗮𝗱𝗼𝘄𝘀 𝗱𝗶𝗲 𝗧𝘄𝗶𝗰𝗲 . . " <p align="center"> 
 <p align="center"> 
-" 𝐇𝐨 𝐝𝐢𝐝 𝐮 𝐣𝐮𝐬𝐭 𝐭𝐰𝐢𝐬𝐭 𝐭𝐡𝐞 𝐤𝐧𝐢𝐟𝐞 ? " <p align="center"> 
+" 𝗜𝘀 𝘁𝗵𝗲𝗿𝗲 𝗹𝗶𝗳𝗲 𝗮𝗳𝘁𝗲𝗿 𝗱𝗲𝗮𝘁𝗵? 𝗟𝗲𝘁'𝘀 𝗳𝗶𝗻𝗱 𝗼𝘂𝘁 . " <p align="center"> 
 
 <p align="center">
   . . .
@@ -41,7 +41,4 @@
   
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/6ddgg2.gif"/></p
-
-
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/cmcn3u.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/t40mwu.png"/></p
