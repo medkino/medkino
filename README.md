@@ -1,6 +1,6 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/7hvyz4.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/7poapa.png"/></p
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/t5aerr.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/1avf8q.png"/></p
                                                                                          
 <p align="center">
                                                           
@@ -13,7 +13,7 @@
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. 𝐃 :
 
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/ie2oq9.gif"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/9xi0pl.png"/></p 
 
 ༒︎𖤐
 
@@ -21,15 +21,15 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/nwu9om.gif"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/ys5ncq.gif"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
-                                                                                                                                                                                  
+                                                                                                                                                                               
 <p align="center"> 
 
-<p align="center"> " 𝗦𝗵𝗮𝗱𝗼𝘄𝘀 𝗱𝗶𝗲 𝗧𝘄𝗶𝗰𝗲 . . " <p align="center"> 
+<p align="center"> " 𝗬𝗼𝘂 𝘄𝗶𝗹𝗹 𝗴𝗿𝗼𝘄 𝗶𝗻𝘁𝗼 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 𝗯𝗲𝗮𝘂𝘁𝗶𝗳𝘂𝗹. 𝗦𝗽𝗿𝗲𝗮𝗱 𝘁𝗵𝗲 𝘀𝗲𝗲𝗱. . " <p align="center"> 
 <p align="center"> 
-" 𝗜𝘀 𝘁𝗵𝗲𝗿𝗲 𝗹𝗶𝗳𝗲 𝗮𝗳𝘁𝗲𝗿 𝗱𝗲𝗮𝘁𝗵? 𝗟𝗲𝘁'𝘀 𝗳𝗶𝗻𝗱 𝗼𝘂𝘁 . " <p align="center"> 
+" 𝗟𝗢𝗢𝗟 VłⱤɄ₴ 𝗶𝗻 𝗺𝘆 𝗴𝗮𝗺𝗲 𝗯𝗿𝗮𝗵 ! " <p align="center"> 
 
 <p align="center">
   . . .
@@ -41,4 +41,6 @@
   
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/t40mwu.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/t6a1sg.png"/></p
+
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/q45s2a.png"/></p
