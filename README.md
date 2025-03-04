@@ -1,6 +1,6 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/7poapa.png"/></p
-
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/1avf8q.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/ui4kng.gif"/></p
+                                                                                        
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/cqakhq.gif"/></p
                                                                                          
 <p align="center">
                                                           
@@ -13,7 +13,7 @@
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. 𝐃 :
 
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/9xi0pl.png"/></p 
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/7sj7wg.gif"/></p 
 
 ༒︎𖤐
 
@@ -21,15 +21,15 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/ys5ncq.gif"/></p
+ <p align="center">  <p align="center"><img src="https://files.catbox.moe/s7xn9a.gif"/></p
                                                                                          
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/h9foxb.gif"/></p
                                                                                                                                                                                
 <p align="center"> 
 
-<p align="center"> " 𝗬𝗼𝘂 𝘄𝗶𝗹𝗹 𝗴𝗿𝗼𝘄 𝗶𝗻𝘁𝗼 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 𝗯𝗲𝗮𝘂𝘁𝗶𝗳𝘂𝗹. 𝗦𝗽𝗿𝗲𝗮𝗱 𝘁𝗵𝗲 𝘀𝗲𝗲𝗱. . " <p align="center"> 
+<p align="center"> " 𝗹𝗼𝗹! 𝗴𝗲𝘁 𝗵𝗮𝗰𝗸𝗲𝗱 𝗹𝗼𝘀𝗲𝗿 . . " <p align="center"> 
 <p align="center"> 
-" 𝗟𝗢𝗢𝗟 VłⱤɄ₴ 𝗶𝗻 𝗺𝘆 𝗴𝗮𝗺𝗲 𝗯𝗿𝗮𝗵 ! " <p align="center"> 
+" 𝗻𝘃𝗺 𝗜 𝗵𝗮𝘃𝗲 𝗮 𝘀𝗼𝗻 𝗻𝗼𝘄 𝗜 𝘄𝗼𝗻'𝘁 𝗵𝗮𝗰𝗸 𝗼𝗸 𝘀𝗼𝗿𝗿𝘆 " <p align="center"> 
 
 <p align="center">
   . . .
@@ -41,6 +41,6 @@
   
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/t6a1sg.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/4eis2x.png"/></p
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/q45s2a.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/r9v94j.jpg"/></p
